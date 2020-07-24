@@ -26,17 +26,17 @@ Have mix flavor in books and music,
 but mainly reads (Japanese) mystery and listen to game OST / doujin music recently.  
   
   
-**blog:** [好吃披薩的夕陽手札] (https://yummypixza.blogspot.com)  
-**twitter:** [@Pixza_Yaoita] (https://twitter.com/Pixza_Yaotia)  
-**Plurk:** http://www.plurk.com/yummypixza (已封存 / archieved, reply only)  
-**github:** [yummypixza] (https://github.com/yummypixza)  
+**blog:** [好吃披薩的夕陽手札](https://yummypixza.blogspot.com)  
+**twitter:** [@Pixza_Yaoita](https://twitter.com/Pixza_Yaotia)  
+**Plurk:** [yummypixza](http://www.plurk.com/yummypixza)  
+**github:** [yummypixza](https://github.com/yummypixza)  
   
 遊戲相關 / Games related:  
-**Steam:** [/id/yummypixza] (http://steamcommunity.com/id/yummypixza)  
+**Steam:** [/id/yummypixza](http://steamcommunity.com/id/yummypixza)  
 **PSN:** P!XZA-  
-**twitch:** [yummypixza] (https://twitch.tv/yummypixza)  
+**twitch:** [yummypixza](https://twitch.tv/yummypixza)  
   
-**音樂遊戲 / Music Games:** [here (Chinese only)] (http://yummypixza.blogspot.tw/2010/05/aboutmusicgame.html)  
+**音樂遊戲 / Music Games:** [here (Chinese only)](https://yummypixza.github.io/musicgame.html)  
 **Ingress:** @PixzaYaoita (Lv.11/ENL)   
 
   
