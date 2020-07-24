@@ -1,9 +1,10 @@
-### 只是對喜歡的事情都有莫名的好奇心.  
-### someone who tries every interesting things a bit on the net.  
-
+### .
+***只是對喜歡的事情都有莫名的好奇心.***  
+***someone who tries every interesting things a bit on the net.***  
   
 *中文為母語 / can speak English / 日本語は極下手.*  
   
+---  
 哈囉, 初次見面的初次見面,  
 好久不見的好久不見,  
 你可以叫我日文的ピクサ, 或是直接叫做披薩就好 :P
@@ -41,5 +42,5 @@ but mainly reads (Japanese) mystery and listen to game OST / doujin music recent
 
   
 這個頁面~~僅供測試使用~~ (現在不是啦), 假如想要聯絡我可以試試上面的連結.  
-this page is ~~for testing purpose~~ (not anymore!),  
+this page is ~~for testing purpose~~ (not anymore!), 
 for more information, you can try reach me by the services above.  
