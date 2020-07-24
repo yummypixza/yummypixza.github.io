@@ -38,5 +38,5 @@ Potential: 最高 11.00
 其他有玩過的:  
 Bang Dream, iM@S CGSS, iM@S MLTD, Tone Sphere, Lanota, Deemo, Cytus 1/2, TapSonic TOP  
   
-[back.] (https://yummypixza.github.io)  
+[back.](https://yummypixza.github.io)  
   
